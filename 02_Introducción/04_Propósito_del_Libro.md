@@ -14,5 +14,10 @@ Es mi firme convicción que dentro de cada uno de nosotros reside un potencial i
 
 Así, con este libro en manos, los invito a embarcarse en una odisea del espíritu y la mente. Que cada página sea un escalón hacia la comprensión más profunda de quiénes somos y qué podemos llegar a ser. Juntos, transformemos el sufrimiento en un puente hacia nuestra más elevada versión. Que el propósito de esta obra resuene en cada corazón, y que al final, emergemos no solo con entendimiento, sino con una renovada pasión por la vida y por nuestro lugar en este grandioso universo.
 
-Con esperanza y determinación,
-Hacia la cima de nuestro potencial.
+
+Este libro es más que una simple lectura; es un pacto. Un pacto que nos hacemos a nosotros mismos para ir más allá de las limitaciones impuestas y descubrir el tesoro escondido en los desafíos que enfrentamos. Juntos, nos comprometemos a elevarnos, aprender y, sobre todo llegar a alcanzar el potencial pleno para el cual fuimos creados.
+
+Invito a cada lector a abrir estas páginas con la certeza de que lo que descubra aquí tiene el potencial de cambiar su destino. Porque, al fin y al cabo, este no es solo un libro sobre sufrimiento, sino sobre el poder inherente en cada uno de nosotros para crear un legado duradero.
+
+En la búsqueda de la plenitud, ¡Empecemos el viaje!
+
