@@ -2,7 +2,7 @@
 
 **Amigos y soñadores de un mundo mejor,**
 
-Nos encontramos en un punto crucial de nuestra historia. Por un lado el mundo nos enseña, prácticamente desde que nacemos,  que debemos evitar el dolor a toda costa, que nuestro objetivo debe ser la gratificación, que esta por si sola constituye la felicidad  y que a ella deberíamos llegar a toda costa. Por otro lado vemos que el sufrimiento está siempre presente y no importa que tan gratificante pueda ser la experiencia del momento, en mayor o menor grado, el dolor, siempre está presente.
+Vivimos un momento histórico donde la razón no es la fuerza que gobierna las decisiones del hombre, nada tiene sentido. Por un lado el mundo nos enseña, desde que nacemos,  que debemos evitar el dolor a toda costa, que  objetivo primordial de nuestras vidas debe ser la gratificación, que esta por si sola constituye la felicidad  y que a ella deberíamos llegar a toda costa. Por otro lado vemos que el sufrimiento está siempre presente y no importa que tan gratificante pueda ser la experiencia del momento, en mayor o menor grado, el dolor, siempre está presente.
 
 Podemos contemplar cómo las maravillas modernas de la ciencia y la tecnología han creado un paraíso de comodidades. Sin embargo, en medio de estas bendiciones de la modernidad, un viejo compañero sigue persistiendo en nuestras vidas: el sufrimiento. ¿Por qué, en una era de tal prosperidad, esta sombra sigue acechando en las esquinas de nuestra existencia?
 
